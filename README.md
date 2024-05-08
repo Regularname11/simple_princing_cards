@@ -10,4 +10,5 @@
 ![image](https://github.com/Regularname11/simple_princing_cards/assets/78084972/682a81d9-1a56-44ec-9232-a1813e086d0c)
 
 ## iPad
-![Uploading image.png…]()
+![image](https://github.com/Regularname11/simple_princing_cards/assets/78084972/65c05a91-141e-49e0-8273-4c026948759c)
+
